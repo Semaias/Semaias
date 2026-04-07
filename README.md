@@ -30,7 +30,7 @@ Sou um desenvolvedor apaixonado por construir soluções que resolvem problemas 
 ### 📫 Como me encontrar:
 - **LinkedIn:** [linkedin.com/in/semaiasrangel](https://www.linkedin.com/in/semaiasrangel)
 - **Email:** semaiasrangel@gmail.com
-- **Localização:** Pipa, RN - Brasil (Disponível para trabalho remoto)
+- **Localização:** Natal, RN - Brasil (Disponível para trabalho remoto)
 
 ---
 
